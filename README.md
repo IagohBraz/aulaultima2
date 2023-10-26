@@ -1,2 +1,4 @@
 # aulaultima2
-Mostrando coomo criar um repositorio
+Mostrando como criar um repositorio
+
+PARA MEUS ALUNOSSSS
